@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KekiDayo
+- 👀 I’m interested in music scoring
+- 🌱 I’m currently learning programming (academics)
+- 💞️ I’m looking to collaborate on various projects that mainly involve music scoring
+- 📫 How to reach me ronimaxtunes@gmail.com
